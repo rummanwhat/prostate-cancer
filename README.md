@@ -146,4 +146,4 @@ How to Run the Analysis
 
 Contact
 
-Feel free to connect with me on LinkedIn: Rumman Mohammad
+Feel free to connect with me on LinkedIn: [Rumman Mohammad](https://www.linkedin.com/in/rummanmohammad/)
